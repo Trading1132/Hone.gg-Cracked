@@ -1,4 +1,4 @@
-# Hone.GG Cracked - Optimize Your PC For Gaming
+Hone.GG Cracked - Optimize Your PC For Gaming
 
 ![image](https://github.com/user-attachments/assets/5c474682-b004-420e-8791-4d0feac8b8d1)
 
