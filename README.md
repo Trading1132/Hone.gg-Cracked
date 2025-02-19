@@ -1,6 +1,7 @@
 # # Hone.gg PC Optimiser Cracked
 
-![hone.gg PC Optimiser Logo]("https://cdn.prod.website-files.com/63af60de1e34a7ada1a6c608/67101b8e0ae409a958848ffc_hone-embed-banner.webp")
+![image](https://github.com/user-attachments/assets/5c474682-b004-420e-8791-4d0feac8b8d1)
+
 
 ## Overview
 
